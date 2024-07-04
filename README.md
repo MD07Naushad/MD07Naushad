@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi I am MD NAUSHAD 👋
 
 <!--
 **MD07Naushad/MD07Naushad** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
